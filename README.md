@@ -1,1 +1,2 @@
-# KhalilZW-MehdiOUB-UML
+# ZOUIZZA KHALIL ET OUBAHALLA MEHDI
+# Mendeley cahier des charges
